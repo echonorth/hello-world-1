@@ -12,3 +12,7 @@ This will be the procedure you will follow to upload assignments and practices i
 
 
 #It is Abbie
+#I am so tired
+#my birthday was 2 days ago
+#i am old
+#omori is on sale 
